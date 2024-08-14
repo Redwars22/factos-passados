@@ -1,7 +1,7 @@
 ---
 title: 'Infância da Princesa Alexandra da Dinamarca'
 description: 'Alexandra Carolina Maria Carlota Luísa Júlia, nasceu no dia 1 de dezembro de 1844 no palácio amarelo em Copenhague – Dinamarca'
-pubDate: 'Jul 08 2023'
+pubDate: 'Jul 08 2022'
 heroImage: 'https://rainhastragicas.com/wp-content/uploads/2024/04/alexandra-da-dinamarca.jpg'
 ---
 
