@@ -1,15 +1,11 @@
 ---
-title: 'A Infância da Princesa Alexandra da Dinamarca'
+title: 'Infância da Princesa Alexandra da Dinamarca'
 description: 'Alexandra Carolina Maria Carlota Luísa Júlia, nasceu no dia 1 de dezembro de 1844 no palácio amarelo em Copenhague – Dinamarca'
 pubDate: 'Ago 13 2024'
 heroImage: 'https://rainhastragicas.com/wp-content/uploads/2024/04/alexandra-da-dinamarca.jpg'
 ---
 
-Alexandra Carolina Maria Carlota Luísa Júlia, nasceu no dia 1 de dezembro de 1844 no palácio amarelo em Copenhague – Dinamarca. 
-
-Ela foi filha do Rei Christian 9º da Dinamarca e da Rainha Luísa de Hesse-Cassel, eles tiveram 6 filhos, sendo Alexandra a 2º. 
-
-Ela cresceu em uma família humilde, mesmo o pai de Alexandra sendo parente da família real, eles viviam apenas com o salário ue o pai recebia trabalhando no exército.  
+Alexandra Carolina Maria Carlota Luísa Júlia, nasceu no dia 1 de dezembro de 1844 no palácio amarelo em Copenhague – Dinamarca. Ela foi filha do Rei Christian 9º da Dinamarca e da Rainha Luísa de Hesse-Cassel, eles tiveram 6 filhos, sendo Alexandra a 2º. Ela cresceu em uma família humilde, mesmo o pai de Alexandra sendo parente da família real, eles viviam apenas com o salário ue o pai recebia trabalhando no exército.  
 
 Quando ela tinha 4 anos, o Rei Christian 8º da Dinamarca faleceu, e seu filho se tornou o novo rei, com o nome Frederico 7º, ele se casou 3 vezes, mas em nenhum desses casamentos gerou herdeiros, e reconheceu o pai de Alexandra que era seu primo como o herdeiro do trono dinamarquês. 
 
